@@ -1,0 +1,1 @@
+La task 1, 2 si 3 am facut tot ce am vazut pe wiki.
